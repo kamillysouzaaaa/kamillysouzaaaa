@@ -1,4 +1,4 @@
-## Olá!Eu sou a Kamilly Souza 🤖😻
+## Olá eu sou a Kamilly Souza🤖😻
 
 <hr>
 <div align="center">
